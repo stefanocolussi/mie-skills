@@ -23,4 +23,4 @@ le mie competenze e skill
 - creazione reti commerciali
 - Creare i miei progetti
 - automatizzare i processi
-- sviluppare le mie aziende yourmach solutions e newtech
+- sviluppare le mie aziende Yourmach Solutions e Deusmak Srl
